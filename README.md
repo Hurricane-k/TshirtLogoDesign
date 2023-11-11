@@ -1,7 +1,7 @@
 # T-shirt Logo Design
 
 ## Disclaimer:
-This is not about technical report or something like that. This is about my last memeory of Hall Residence. Have fun to browse it!
+This is not about technical report or something like that. This is about my last memeory of Hall Residence Life. Have fun to browse it!
 
 ## Goal:
 Hall Residence Activity aims to connect each other closely. I really happy to register it. I wanna share the idea of my logo design.
